@@ -1,3 +1,2 @@
-# Speedrun.tools #
 
 #### Under Construction
